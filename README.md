@@ -117,3 +117,8 @@ Known for adaptability, analytical thinking, and delivering results under pressu
 
 - **Professor Fan Hongzhong** – Huazhong University of Science and Technology  
   ✉ hongzhong@hust.edu.cn
+
+  ## 💼 Support or Download
+
+If you found this CV helpful, you can support my work or download templates from:[Gumroad – Academic Toolkit](https://istiak3.gumroad.com/l/rzfwxg)
+
